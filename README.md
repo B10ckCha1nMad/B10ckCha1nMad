@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @B10ckCha1nMad
+- 👀 I’m interested in learning more about coding & computer science
+- 🌱 I’m currently learning about the interior working of blockchains
+- 💞️ I’m looking to collaborate on anything that will aid my growth in this space
+- 📫 How to reach me 3rand0nh1ll@gmail.com
